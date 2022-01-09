@@ -1,0 +1,4 @@
+- Hi, I’m @BradlyFinau.
+- I’m interested in Creating new and interesting technologies for games and unique mechanics based gameplay.
+- I’m currently learning ...
+- I’m looking to collaborate on any gaming project especially for unity.
